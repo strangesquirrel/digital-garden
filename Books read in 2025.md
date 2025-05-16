@@ -1,0 +1,15 @@
+ - HappyHead - Josh Silver
+ - Dead Happy - Josh Silver
+ - How to Come Alive Again - Beth McColl
+ - The Eye of the Bedlam Bride - Matt Dinniman
+ - Zero Stars, Do Not Recommend - MJ Wassmer
+ - [[The Subtle Art of Not Giving a Fuck - Mark Manson]]
+ - Horrstor - Grady Hendrix
+ - Sunburn - James Felton
+ - You Don't Want to Know - James Felton
+ - This Inevitable Ruin - Matt Dinniman
+ - Legends & Latters - Travis Baldree
+ - The Thursday Murder Club - Richard Osman
+ - Mickey7 - Edward Ashton
+ - 52 Times Britain was a Bellend - James Felton
+ - A Beautiful Place to Die - Christopher Greyson
